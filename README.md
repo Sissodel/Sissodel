@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SISSO DEL 
-- 👀 I’m interested in anything call gossip
+- 👀 I’m interested in anything payable 
 - 🌱 I’m currently learning freelancer
 - 💞️ I’m looking to collaborate on chat operator 
 - 📫 How to reach me on every social media platform 
